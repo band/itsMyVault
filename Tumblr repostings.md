@@ -1,4 +1,4 @@
-[[TumblrPosts/20091206 "Unfettered" capitalism]]  
+[[20091206 Unfettered capitalism]]  
 
 [[TumblrPosts/20100208 Specify the desired results first]]  
 
