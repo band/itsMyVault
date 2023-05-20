@@ -9,4 +9,5 @@
 
 #### [[Tumblr repostings]]  
 
-
+![Rodanthe, North Carolina, USA](images/rodantheShoreNC2008.jpeg)  
+Rodanthe, North Carolina, USA, Winter 2008
